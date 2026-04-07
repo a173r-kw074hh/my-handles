@@ -96,5 +96,5 @@
 * kwotahxd
 * kotahh
 * kwot'yah
-* kwotah~ ~ah~ ~ah~~
+* kwotah~ ah~ ah~~
 ###### to be continued...
